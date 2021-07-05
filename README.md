@@ -1,3 +1,3 @@
-🎆🎇This Git course is outstanding. 🎇🎆
+🎇This Git course is outstanding. 
 
-Thank you so much Gama Academy. 
+Thank you so much Gama Academy. 🎇
